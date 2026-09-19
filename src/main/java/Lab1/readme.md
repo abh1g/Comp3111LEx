@@ -1,2 +1,2 @@
 he he he ha
-<img width="1512" height="949" alt="Screenshot 2026-09-19 at 6 32 15 PM" src="https://github.com/user-attachments/assets/c1a37508-e6f5-4a9e-9cf9-ffdd1a20fac6" />
+<img width="1512" height="949" alt="Screenshot 2026-09-19 at 6 51 12 PM" src="https://github.com/user-attachments/assets/e3322bbd-b4e9-4f76-abed-3e3098dd7c2c" />
